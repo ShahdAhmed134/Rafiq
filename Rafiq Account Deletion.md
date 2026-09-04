@@ -38,4 +38,4 @@ For questions, concerns, or privacy requests, contact us at:
 
 **Email:** [rafiqteamsupport@gmail.com](mailto\:rafiqteamsupport@gmail.com)
 
-We aim to respond to privacy-related requests within 48 hours.garding account deletion or your personal data, please contact the Rafiq support team through the contact information provided in the application or on the Rafiq website.
+We aim to respond to privacy-related requests within 48 hours.
